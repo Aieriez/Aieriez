@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de Gabriel Andrey Michelotto 😁
+## Bem-vindo(a) ao perfil de Gabriel Andrey Michelotto | ## Welcome to Gabriel Andrey Michelotto's profile
 
  <div>
    <a href="https://github.com/Aieriez">
